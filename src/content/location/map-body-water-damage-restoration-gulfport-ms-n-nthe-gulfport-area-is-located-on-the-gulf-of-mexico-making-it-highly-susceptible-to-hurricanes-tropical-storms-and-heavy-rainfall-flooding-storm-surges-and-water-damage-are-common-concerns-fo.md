@@ -1,5 +1,5 @@
 ---
-location: Gulfport, MS
+location: Gulfport
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d220193.05135844395!2d-89.233509826225!3d30.421459002807556!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x889c166ee80114e5%3A0xc2614d446e819544!2sGulfport%2C%20MS%2C%20USA!5e0!3m2!1sen!2sph!4v1728662549614!5m2!1sen!2sph
 pageTitle: Water Damage Restoration Gulfport, MS
 description: The Gulfport area is located on the Gulf of Mexico, making it
