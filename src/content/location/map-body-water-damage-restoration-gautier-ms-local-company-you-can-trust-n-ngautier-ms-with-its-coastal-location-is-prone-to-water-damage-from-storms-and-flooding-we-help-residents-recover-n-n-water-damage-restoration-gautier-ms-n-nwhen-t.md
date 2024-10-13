@@ -1,5 +1,5 @@
 ---
-location: Gautier, MS
+location: Gautier
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d220192.63737296863!2d-88.82910227619986!3d30.421642452437855!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x889bf1d167695e6f%3A0xb0be3747a359f06e!2sGautier%2C%20MS%2C%20USA!5e0!3m2!1sen!2sph!4v1728661999767!5m2!1sen!2sph
 pageTitle: Water Damage Restoration Gautier, MS
 description: "Gautier, MS with its coastal location is prone to water damage
