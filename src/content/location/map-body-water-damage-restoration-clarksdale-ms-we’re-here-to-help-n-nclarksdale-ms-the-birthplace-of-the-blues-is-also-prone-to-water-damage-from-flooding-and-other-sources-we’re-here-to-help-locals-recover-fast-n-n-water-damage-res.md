@@ -1,5 +1,5 @@
 ---
-location: Clarksdale, MS
+location: Clarksdale
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d105602.30749190605!2d-90.65397977411416!3d34.19563395588329!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x862adf11f3370ec5%3A0x8fd019ae64018bd6!2sClarksdale%2C%20MS%2C%20USA!5e0!3m2!1sen!2sph!4v1728661338473!5m2!1sen!2sph
 pageTitle: Water Damage Restoration Clarksdale, MS
 description: "Clarksdale, MS, the birthplace of the blues, is also prone to
