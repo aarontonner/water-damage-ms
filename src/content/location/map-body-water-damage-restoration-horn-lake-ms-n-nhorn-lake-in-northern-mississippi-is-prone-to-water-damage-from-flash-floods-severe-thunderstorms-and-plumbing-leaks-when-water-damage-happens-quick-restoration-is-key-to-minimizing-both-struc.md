@@ -1,5 +1,5 @@
 ---
-location: Horn Lake, MS
+location: Horn Lake
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d104651.0471260848!2d-90.12936434638789!3d34.94795512891638!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x87d56162bbcb9901%3A0x52bf639e88091be4!2sHorn%20Lake%2C%20MS%2C%20USA!5e0!3m2!1sen!2sph!4v1728662860719!5m2!1sen!2sph
 pageTitle: Water Damage Restoration Horn Lake, MS
 description: "Horn Lake in northern Mississippi is prone to water damage from
