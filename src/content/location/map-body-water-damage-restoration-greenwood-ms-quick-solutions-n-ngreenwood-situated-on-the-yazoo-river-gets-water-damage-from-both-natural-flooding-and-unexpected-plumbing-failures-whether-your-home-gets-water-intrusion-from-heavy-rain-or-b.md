@@ -29,7 +29,8 @@ Greenwood, situated on the Yazoo River, gets water damage from both natural floo
 ## 24/7 Water Damage Restoration in Greenwood, MS
 
 When a pipe burst in a historic home on Front Street in Greenwood, the family had water damage in their basement and living area. We were there within the hour with industrial pumps and drying equipment to start the process. Our 24/7 emergency services so you never have to deal with water damage alone.
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## How to Save Personal Property After Water Damage
 
@@ -46,7 +47,8 @@ Being situated on the Yazoo River makes Greenwood prone to flash flooding. Our f
 ## What to Do After a Water Damage in Your Home
 
 After a water damage event, you need to follow the right steps to prevent further damage. First, turn off your home’s water supply and electricity to avoid electrical hazards. Call us immediately to assess the damage. Moving valuables to higher ground and starting basic drying with towels or fans can help minimize immediate damage until help arrives.
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Mold Removal and Prevention for Greenwood Homes
 
