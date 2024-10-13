@@ -1,5 +1,5 @@
 ---
-location: Corinth, MS
+location: Corinth
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d209313.85467724953!2d-88.68337861699564!3d34.94334821410984!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x887dc12c77c89489%3A0x4d53b70ff8aecc99!2sCorinth%2C%20MS%2038834%2C%20USA!5e0!3m2!1sen!2sph!4v1728661864152!5m2!1sen!2sph
 pageTitle: Water Damage Restoration Corinth, MS
 description: "Corinth, MS is a great city but can get hit with water damage from
