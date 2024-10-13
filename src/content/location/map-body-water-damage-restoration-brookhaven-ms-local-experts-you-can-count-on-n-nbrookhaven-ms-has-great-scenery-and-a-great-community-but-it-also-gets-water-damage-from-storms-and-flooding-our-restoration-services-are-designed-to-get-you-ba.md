@@ -32,7 +32,8 @@ When the Turner’s basement flooded from a heavy rain storm they called us for 
 ## What to Do After Water Damage in Brookhaven
 
 When water damage happens, time is of the essence. The Davis’s found themselves in a bind when their kitchen flooded from a busted pipe. They called us right away and we were able to start the restoration process. We recommend turning off the water supply, moving valuables to safety and calling a professional restoration service. If you have water damage don’t wait—call us now!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Mold Remediation in Brookhaven Homes
 
@@ -41,7 +42,8 @@ Mold can grow fast after water damage especially in humid conditions. We recentl
 ## How to Choose a Water Damage Restoration Company in Brookhaven
 
 Choosing the right company can make all the difference in your recovery. The Allen’s chose us after reading good reviews about our services. We take pride in our quality and customer service. Our trained technicians are here to guide you through the entire restoration process. Need water damage restoration? Call us now!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Water Damage Prevention in Brookhaven: Tips
 
