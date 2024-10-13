@@ -1,5 +1,5 @@
 ---
-location: Columbus, MS
+location: Columbus
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d212914.18135474966!2d-88.59137938488365!3d33.50699429614338!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x8886ebdb4e7e83d1%3A0x6a9927629d2a4c49!2sColumbus%2C%20MS%2C%20USA!5e0!3m2!1sen!2sph!4v1728661698343!5m2!1sen!2sph
 pageTitle: Water Damage Restoration Columbus, MS
 description: "Columbus, MS may be full of charm and community but it’s not
