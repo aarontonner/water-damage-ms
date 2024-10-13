@@ -1,5 +1,5 @@
 ---
-location: Hernando, MS
+location: Hernando
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d209539.83832983373!2d-90.16561468066395!3d34.85472034070407!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x887ff58cc7be97d9%3A0x4da4b7cfac8c32ea!2sHernando%2C%20MS%2C%20USA!5e0!3m2!1sen!2sph!4v1728662711335!5m2!1sen!2sph
 pageTitle: Water Damage Restoration Hernando, MS
 description: Hernando, located inland in northern Mississippi, experiences its
