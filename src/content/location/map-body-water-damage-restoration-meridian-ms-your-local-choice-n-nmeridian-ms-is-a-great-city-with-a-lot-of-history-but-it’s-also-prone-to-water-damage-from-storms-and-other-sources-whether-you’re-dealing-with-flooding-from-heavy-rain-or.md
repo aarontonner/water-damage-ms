@@ -1,5 +1,5 @@
 ---
-location: Meridian, MS
+location: Meridian
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d215655.11264632776!2d-88.85676745094452!3d32.37597575761235!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x88847dc09ed90729%3A0x242246cb2099fcb6!2sMeridian%2C%20MS%2C%20USA!5e0!3m2!1sen!2sph!4v1728660660298!5m2!1sen!2sph
 pageTitle: Water Damage Restoration Meridian, MS
 description: "Water damage can happen in the blink of an eye, whether it’s from
