@@ -1,5 +1,5 @@
 ---
-location: Canton, MS
+location: Canton
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d215100.98735048805!2d-90.19704351735983!3d32.60743790273353!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x8629d8dde114b25d%3A0xbc695851f15b31bd!2sCanton%2C%20MS%2039046%2C%20USA!5e0!3m2!1sen!2sph!4v1728661211321!5m2!1sen!2sph
 pageTitle: Water Damage Restoration Canton, MS
 description: "Canton, MS, with its beautiful parks and historic buildings, can
