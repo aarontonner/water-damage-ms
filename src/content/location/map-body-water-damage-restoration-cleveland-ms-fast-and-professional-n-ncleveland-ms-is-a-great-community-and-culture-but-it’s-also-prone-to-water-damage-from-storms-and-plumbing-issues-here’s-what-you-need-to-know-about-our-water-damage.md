@@ -1,5 +1,5 @@
 ---
-location: Cleveland, MS
+location: Cleveland
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d106164.76396578879!2d-90.81276249051248!3d33.743894631331116!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x862ba8f3f665d015%3A0x19fad965af8662be!2sCleveland%2C%20MS%2038732%2C%20USA!5e0!3m2!1sen!2sph!4v1728661525705!5m2!1sen!2sph
 pageTitle: Water Damage Restoration Cleveland, MS
 description: Cleveland, MS is a great community and culture, but it’s also prone
