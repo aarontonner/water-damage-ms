@@ -1,5 +1,5 @@
 ---
-location: Grenada, MS
+location: Grenada
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d212233.79571391127!2d-89.98300479368655!3d33.78254545610355!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x8881ccd9ad403dff%3A0xd410602682955c93!2sGrenada%2C%20MS%2038901%2C%20USA!5e0!3m2!1sen!2sph!4v1728662418598!5m2!1sen!2sph
 pageTitle: Water Damage Restoration Grenada, MS
 description: "Grenada’s location near Grenada Lake makes it vulnerable to water
