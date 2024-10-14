@@ -30,7 +30,8 @@ Clinton, MS has great neighborhoods and history but can also have water damage. 
 ## Clinton’s Water Damage Restoration Experts
 
 We are proud to serve the Clinton community with water damage restoration services. The Murphy’s called us after their basement flooded from heavy rain. We assessed the situation and got to work on the restoration process so they could get back to their lives. Need water damage restoration in Clinton? We’re here to help!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## What to Do After Water Damage in Clinton, MS
 
@@ -43,7 +44,8 @@ Mold is a big problem after water damage especially in a humid climate like Clin
 ## Emergency Water Damage Restoration Clinton: What You Need to Know
 
 When water damage happens knowing what to do can make all the difference. The Baker’s sump pump failed during a heavy rainstorm and their basement flooded. They called us immediately and our emergency team responded quickly to start the cleanup process. We offer 24/7 emergency services in Clinton so don’t wait to call if you need help!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Tips to Prevent Water Damage in Clinton Homes
 
