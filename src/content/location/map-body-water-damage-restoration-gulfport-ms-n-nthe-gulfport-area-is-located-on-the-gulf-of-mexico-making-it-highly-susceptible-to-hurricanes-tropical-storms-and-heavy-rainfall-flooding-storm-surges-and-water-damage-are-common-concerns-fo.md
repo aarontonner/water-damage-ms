@@ -32,7 +32,8 @@ The Gulfport area is located on the Gulf of Mexico, making it highly susceptible
 ## Reliable Water Damage Restoration in Gulfport, MS
 
 In Gulfport, water damage restoration services are vital due to the city’s location along the Mississippi Gulf Coast. Recently, a beachfront property was hit hard by Hurricane Zeta, causing flooding that impacted the foundation and interior of the home. Our team arrived immediately to mitigate further damage by extracting water, drying out the building, and sanitizing the affected areas. We understand that Gulfport’s coastal proximity means quick action is needed, especially during storm season. Call us!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Protecting Your Property from Long-Term Water Damage
 
@@ -45,7 +46,8 @@ In a home near Courthouse Road, our team dealt with severe water damage followin
 ## Flood Damage Restoration: Minimize Losses with Immediate Action
 
 Flooding from a storm surge in the Gulf can be devastating. After a tropical storm, one Gulfport family near Bayou Bernard found themselves wading through floodwaters inside their home. By calling us immediately, they were able to minimize the loss of personal belongings and salvage most of their furniture. Our flood damage restoration service in Gulfport involves comprehensive water extraction, drying, and cleaning, ensuring your property is restored efficiently. Give us a call!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Tips for Preventing Water Damage During Gulfport Storms
 
