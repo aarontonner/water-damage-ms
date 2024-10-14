@@ -32,7 +32,9 @@ When the Cooper family had a flooded basement after a big rain storm they called
 
 ## Water Damage 101 for Madison Residents
 
-Water damage is overwhelming but knowing what to do can make it less stressful. The Jenkins family had water damage from a faulty dishwasher. They turned off the appliance and called us. We recommend residents act fast, document the damage and call a professional like us to handle it. Don’t wait—if you have water damage call us today! (228) 231-0588](tel:2282310588)
+Water damage is overwhelming but knowing what to do can make it less stressful. The Jenkins family had water damage from a faulty dishwasher. They turned off the appliance and called us. We recommend residents act fast, document the damage and call a professional like us to handle it. Don’t wait—if you have water damage call us today! 
+
+[(228) 231-0588](tel:2282310588)
 
 ## Mold Prevention for Homes in Madison, MS
 
@@ -44,7 +46,9 @@ Knowing the water damage restoration process can ease your mind. After the Parke
 
 ## Emergency Water Damage in Madison, Mississippi
 
-In emergencies time is of the essence. When the Robinson family had a plumbing failure they called us right away. Our emergency response team arrived quickly, assessed the damage and started the restoration process. We offer 24/7 emergency services so Madison residents can get help fast. Call us if you need help! (228) 231-0588](tel:2282310588)
+In emergencies time is of the essence. When the Robinson family had a plumbing failure they called us right away. Our emergency response team arrived quickly, assessed the damage and started the restoration process. We offer 24/7 emergency services so Madison residents can get help fast. Call us if you need help! 
+
+[(228) 231-0588](tel:2282310588)
 
 ## Your Insurance Policy for Water Damage in Madison
 
