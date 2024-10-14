@@ -34,7 +34,8 @@ When the Williams family had a flooded basement from a broken sump pump they cal
 ## What to Do Immediately After Water Damage in Cleveland
 
 When water damage happens, time is of the essence. The Harris family had a leak from their washing machine that flooded their laundry room. They turned off the water supply and called us. We recommend that residents turn off power, document the damage with photos and call a professional to help. If you find yourself in this situation we’re here to help.
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Mold Remediation for Cleveland Residents
 
@@ -47,7 +48,8 @@ Costs for water damage restoration vary based on the extent of the damage and se
 ## Emergency Water Damage Tips in Cleveland, Mississippi
 
 In an emergency knowing what to do can make all the difference. When the Miller family had a plumbing failure they called us right away. We recommend that residents keep emergency contact numbers handy, know how to shut off water supply valves and document damage for insurance claims. If you need help we’re just a call away!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## How to Choose the Best Water Damage Restoration Service in Cleveland
 
