@@ -51,7 +51,7 @@ When water damage occurs, immediate action is crucial to minimize further damage
 * Shut off the electricity to avoid electrocution risks.
 * Move furniture and valuables to higher ground to prevent loss.
 * Document the damage with photographs for insurance claims.
-* Contact our restoration team for professional assistance. (228) 231-0588](tel:2282310588)
+* Contact our restoration team for professional assistance. [(228) 231-0588](tel:2282310588)
 
 By following these steps, you can significantly reduce the impact of water damage and facilitate a smoother recovery process.
 
@@ -67,7 +67,7 @@ If you suspect mold in your home, contact us for a professional inspection and r
 
 ## Choosing the Right Water Damage Restoration Company in Greenville
 
-Selecting the right restoration company is vital for effective recovery. The Johnson family faced extensive flooding and chose us based on our local reputation and quick response time. Our team understands the specific challenges Greenville residents face, such as the risk of river flooding and the need for swift action. If you’re in need of restoration services, reach out to us today! (228) 231-0588](tel:2282310588)
+Selecting the right restoration company is vital for effective recovery. The Johnson family faced extensive flooding and chose us based on our local reputation and quick response time. Our team understands the specific challenges Greenville residents face, such as the risk of river flooding and the need for swift action. If you’re in need of restoration services, reach out to us today! [(228) 231-0588](tel:2282310588)
 
 ## Understanding the Costs of Water Damage Restoration in Greenville, MS
 
