@@ -31,7 +31,8 @@ Hernando, located inland in northern Mississippi, experiences its fair share of 
 ## Professional Water Damage Cleanup and Restoration in Hernando, MS
 
 In a recent case, a Hernando family faced water damage after a severe thunderstorm caused basement flooding. Our water damage restoration team arrived on-site to remove standing water and thoroughly dry the area. We also cleaned and sanitized the basement to prevent mold growth. Hernando residents trust our 24/7 emergency services to ensure their homes are restored quickly and efficiently. Call us! 
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## How Water Damage Impacts Your Home’s Structural Integrity
 
@@ -40,7 +41,8 @@ Water damage doesn’t only affect your flooring and walls—it can weaken the v
 ## The Best Techniques for Efficient Water Extraction
 
 With homes in Hernando often experiencing flash floods due to sudden heavy rain, effective water extraction is key to minimizing damage. In one instance, after a severe rainstorm, a family near Arkabutla Lake called us to extract water from their first floor. We used advanced water extraction techniques and moisture meters to ensure the entire area was thoroughly dried. These methods not only prevent immediate damage but also avoid issues like mold and wood rot. Give us a call!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Flood Restoration: Quick Solutions for Hernando Homes
 
