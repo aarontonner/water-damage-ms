@@ -32,7 +32,8 @@ When the Ellis family’s home flooded from a storm they called us for emergency
 ## What to Do When You Have Water Damage in Corinth
 
 Fast action can save you from further damage. The Taylor family had a flooded basement when their sump pump failed. They turned off their water supply and called us. We recommend residents turn off electricity in the affected areas, move valuables to safety and document the damage. If you find yourself in this situation call us for professional help.
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Mold Prevention for Homes in Corinth, MS
 
@@ -41,7 +42,8 @@ Preventing mold after water damage is key especially in humid cities like Corint
 ## How to Pick a Water Damage Restoration Company in Corinth
 
 Choosing the right company can make all the difference. The Adams family chose us based on our local reputation and reviews. We pride ourselves on quality and local knowledge. If you need water damage restoration in Corinth call us today!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## The Water Damage Restoration Process in Corinth
 
