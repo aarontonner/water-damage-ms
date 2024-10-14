@@ -38,7 +38,8 @@ We know how important it is to act fast when water damage happens. The Taylor’
 ## Water Damage in Meridian Homes
 
 Meridian homes can experience water damage from many sources, storms, leaky roofs and plumbing issues. For example a client had water damage from a storm that went through the area and caused significant roof leaks. We assessed the damage, repaired the roof and did water extraction to prevent mold growth. Knowing these common causes can help residents take preventative measures. If you suspect water damage in your home call us for a free assessment.
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Mold Remediation for Meridian Residents
 
@@ -51,7 +52,8 @@ When water damage happens acting fast can help minimize the damage. We recently 
 ## How to Choose a Water Damage Restoration Company in Meridian
 
 Choosing the right company is key to a successful outcome. The Clark’s chose us after reading about our fast response and good reviews. We’re local and customer focused. Our trained technicians will walk you through the entire process. If you need water damage restoration call us today!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Water Damage Restoration Costs in Meridian, MS
 
