@@ -33,7 +33,8 @@ Water damage can happen in the blink of an eye, whether it’s from heavy rain, 
 ## 24/7 Water Damage Restoration in Olive Branch, MS
 
 Imagine it’s a stormy night and your basement is flooding. That’s what happened to the Thompson’s in Olive Branch last summer when a heavy rain overwhelmed their drain system. They called us and we were there in an hour to start water extraction and drying. We offer 24/7 water damage restoration in Olive Branch so you get help no matter the time of day. If you find yourself in a similar situation, remember—we’re just a phone call away!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## What to Do After Severe Weather in Olive Branch
 
@@ -46,7 +47,8 @@ With the humidity in Olive Branch mold can grow fast after water damage. After h
 ## What to Do Immediately After Water Damage in Olive Branch, MS
 
 When water damage happens immediate action can save your property from further damage. Take the Wilson’s for example, their home near the Olive Branch Historical Society flooded when a pipe burst. They turned off the water supply and called us. We recommend these immediate steps: turn off power to the affected areas, remove valuable items from the water and document the damage with photos for insurance claims. If you have water damage follow these steps and call us now.
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## How to Choose a Water Damage Restoration Company in Olive Branch
 
