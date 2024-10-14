@@ -34,7 +34,8 @@ When the Lewis’s home flooded last summer after a big rain, they called us. We
 ## How to Handle Water Damage in Clarksdale Homes
 
 Responding quickly to water damage can save your home from major damage. The Mitchells had a burst pipe in their living room. They called us and we were able to start the restoration process right away. If you have water damage, remember to turn off the water supply, turn off electricity and call a restoration service immediately.
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Preventing Mold Growth After Water Damage in Clarksdale
 
@@ -43,7 +44,8 @@ Mold can grow fast after water damage, especially in Clarksdale’s humid climat
 ## Clarksdale MS Emergency Water Damage Response
 
 In an emergency, time is of the essence. The Taylor’s had major water damage when a storm caused their roof to leak. They called us and our emergency response team arrived to start the extraction and drying process. We’re available 24/7 for emergencies in Clarksdale—call us now!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Water Damage Scenarios in Clarksdale
 
