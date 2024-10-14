@@ -30,7 +30,8 @@ Hattiesburg is beautiful and full of life but it’s also prone to water damage 
 ## Hattiesburg’s Water Damage Pros
 
 We’ve been serving Hattiesburg for years and know the common water damage issues that Hattiesburg residents face. Recently we helped the Johnson’s whose home was hit by a water line break. Our team assessed the situation, extracted the water and restored their home quickly. When you need water damage pros you can trust call us today for a free estimate!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## What to Do When You Have Water Damage in Hattiesburg, MS
 
@@ -39,7 +40,8 @@ When water damage happens it’s overwhelming. For example the Anderson’s had 
 ## Mold Removal After Water Damage in Hattiesburg
 
 Mold can grow fast after water damage especially in humid environments like Hattiesburg. After a leak in the garage caused mold growth in the Johnson’s home our mold removal team was called in. We used specialized equipment to find the mold, contain the area and safely remove all of it. Our mold removal services will make your home safe and healthy. If you suspect mold after water damage call us today for an inspection.
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## How to Prevent Water Damage in Hattiesburg Homes
 
