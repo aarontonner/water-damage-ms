@@ -32,7 +32,8 @@ When the Adams’ had a flood after a big rain storm they called us. We came out
 ## How to Handle Water Damage from Floods in Columbus
 
 Floods can cause a lot of damage. The Sanchez’s had a big problem when the nearby river overflowed and flooded their home. They called us and we came out and extracted water and restored their property. If you have flood damage remember to act fast: turn off power, remove valuables and call a professional restoration service.
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Mold Inspection and Removal After Water Damage in Columbus
 
@@ -45,7 +46,8 @@ In an emergency having a plan is crucial. When the Lee’s kitchen flooded due t
 ## How to Prevent Water Damage in Columbus Homes
 
 Preventing water damage is key to a safe home. We told the Johnson’s to check their gutters and downspouts regularly after they had flooding from a clogged drainage system. Simple preventive measures can save homeowners from costly repairs down the road. Need tips on how to prevent water damage? Call us for personalized advice.
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Insurance Help for Water Damage in Columbus, MS
 
