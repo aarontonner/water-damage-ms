@@ -28,7 +28,8 @@ Gautier, MS with its coastal location is prone to water damage from storms and f
 ## Water Damage Restoration Gautier, MS
 
 When the Bennett’s had flooding after a storm they called us for water damage restoration. We arrived quickly to assess the situation and started the cleanup process and had their home back to pre-damage condition. If you have water damage in Gautier you can call us.
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## What to Do After Water Damage in Gautier Homes
 
@@ -41,7 +42,8 @@ Mold can grow fast after water damage especially in humid areas like Gautier. Af
 ## Emergency Service for Water Damage in Gautier, MS
 
 In an emergency a quick response is key. The Thompson’s had significant water damage when their roof leaked during a storm. They called us immediately and our emergency team arrived to start the restoration process. We offer 24/7 emergency service so Gautier residents can get help when they need it most.
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Causes of Water Damage in Gautier Homes
 
