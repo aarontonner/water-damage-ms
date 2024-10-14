@@ -29,7 +29,8 @@ Horn Lake in northern Mississippi is prone to water damage from flash floods, se
 ## Water Damage Emergency in Horn Lake, MS
 
 A Horn Lake family called our water damage emergency team in the middle of the night when their water heater burst and flooded their entire first floor. We responded quickly with water extraction, drying and sanitizing the area. Acting fast in a water emergency can prevent long term damage to your floors, walls and furniture. Call us!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Most Common Causes of Water Damage and How to Prevent Them
 
@@ -42,7 +43,8 @@ When heavy rain caused flooding in a Horn Lake basement our team used advanced w
 ## Flood Damage Repair: Restoring Your Home After Water Disasters
 
 A Horn Lake home was flooded when a nearby creek overflowed. The flood affected the lower level of the home, damaging drywall, carpet and furniture. We did flood damage repair which included water extraction, debris removal and restoring the damaged surfaces. Quick action prevented further damage and mold growth. Give us a call!
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Water Damage Restoration Can Save Your Property
 
