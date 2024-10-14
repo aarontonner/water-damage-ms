@@ -29,7 +29,8 @@ Grenada’s location near Grenada Lake makes it vulnerable to water damage from 
 ## Fast Response Water Damage Restoration in Grenada, MS
 
 When a heavy downpour led to water damage in a Grenada resident’s home near Highway 8, our team responded immediately. With fast water extraction and drying methods, we prevented further structural damage and restored the property to its original state.
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## Key Indicators of Water Damage: When to Call a Professional
 
@@ -42,7 +43,8 @@ After a storm caused basement flooding in a Grenada home near Grenada Lake, our 
 ## Flood Restoration Services in Grenada: What You Need to Know
 
 Grenada is prone to flash flooding, especially during storm season. Our flood restoration services are designed to handle large-scale water damage quickly and efficiently. We offer full-service flood cleanup, including water extraction, drying, and sanitizing to protect your home from long-term damage.
-(228) 231-0588](tel:2282310588)
+
+[(228) 231-0588](tel:2282310588)
 
 ## How to Deal with Water-Damaged Personal Items
 
