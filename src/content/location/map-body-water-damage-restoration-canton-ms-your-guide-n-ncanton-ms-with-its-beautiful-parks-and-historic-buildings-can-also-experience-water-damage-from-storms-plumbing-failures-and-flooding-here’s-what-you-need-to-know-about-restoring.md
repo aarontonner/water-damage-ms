@@ -28,7 +28,9 @@ Canton, MS, with its beautiful parks and historic buildings, can also experience
 
 ## 24/7 Water Damage Restoration Services in Canton, MS
 
-When water damage happens, time is of the essence. Like last spring when a thunderstorm hit and the Johnson’s basement flooded when the rain overwhelmed their drainage system. They called us and our emergency team was on site within the hour to assess and start extraction. We offer 24/7 water damage restoration services in Canton, so help is just a phone call away. (228) 231-0588](tel:2282310588)
+When water damage happens, time is of the essence. Like last spring when a thunderstorm hit and the Johnson’s basement flooded when the rain overwhelmed their drainage system. They called us and our emergency team was on site within the hour to assess and start extraction. We offer 24/7 water damage restoration services in Canton, so help is just a phone call away. 
+
+[(228) 231-0588](tel:2282310588)
 
 ## What Causes Water Damage in Canton Homes
 
@@ -40,7 +42,9 @@ Knowing what to do after water damage can help minimize loss. After the Thompson
 
 ## Mold Removal Solutions for Canton Residents
 
-Mold can grow quickly after water damage, especially in humid conditions like Canton. For example, after helping the Garcia’s who had mold growth from a kitchen leak we implemented mold removal strategies, including thorough cleaning and air quality testing. If you suspect mold in your home call us for a full assessment and removal services. (228) 231-0588](tel:2282310588)
+Mold can grow quickly after water damage, especially in humid conditions like Canton. For example, after helping the Garcia’s who had mold growth from a kitchen leak we implemented mold removal strategies, including thorough cleaning and air quality testing. If you suspect mold in your home call us for a full assessment and removal services. 
+
+[(228) 231-0588](tel:2282310588)
 
 ## Water Damage Restoration Company in Canton
 
