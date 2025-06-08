@@ -1,8 +1,8 @@
 ---
 preloadCSS: "/assets/css/blog.css"
 eleventyComputed:
-  title: "{{ pageTitle }} | CALL NOW: (228) 231-0588"
-  description: "Water damage services in {{ location }}. Call (228) 231-0588 to connect with one of our water damage repair experts and book a service."
+  title: "{{ pageTitle }} | CALL NOW: {{ phoneFormatted }}"
+  description: "Water damage services in {{ location }}. Call {{ phoneFormatted }} to connect with one of our water damage repair experts and book a service."
   preloadImg: "{{ image }}"
   permalink: "/{{ location | slug }}/index.html"
 ---
